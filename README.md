@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 🖤
+### Boas vindas ao meu perfil 💙
 
 Meu nome é Ana Luiza Barbosa
 
@@ -10,3 +10,4 @@ Meu nome é Ana Luiza Barbosa
 
 00001120732360SP@al.educacao.sp.gov.br
 
+![](https://media1.tenor.com/m/GcRAgy1ryX0AAAAd/sleep-blue.gif)
